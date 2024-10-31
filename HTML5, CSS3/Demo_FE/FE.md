@@ -1,1 +1,1 @@
-What the fuck
+Hi everyone, My name is Nam. I love Linux.
